@@ -1,4 +1,0 @@
-# BOLT8_EJ1
-_PRUEBA_
-
-#####EMPECEMOS!!
